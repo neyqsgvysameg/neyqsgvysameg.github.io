@@ -1,1 +1,0 @@
-# neyqsgvysameg.github.io
